@@ -37,9 +37,18 @@ Here are some ideas to get you started:
 
 <img width="736" height="792" alt="51991" src="https://github.com/user-attachments/assets/5ec67f35-2bc9-4858-bd8e-1b48f3b89a8c" />
 
-
 <h1 align="center" style="color:#ff85a1;">˚₊· ͟͟͞͞➳❥ 𝒜𝐵𝒪𝒰𝒯 𝑀𝐸 ❥ ͟͟͞͞˚₊·</h1>
-<img width="1024" height="1024" alt="52007" src="https://github.com/user-attachments/assets/bffe84b9-b272-463c-ac3f-abbd30571582" />
+
+<p align="center" style="font-family: monospace; color: #ff85a1; font-size: 15px; letter-spacing: 2px; margin-top: -10px;">
+🌺 ‧₊˚ 🍒 🌳 🍒 ˚₊‧ 🌺
+</p>
+
+<h1 align="center" style="font-family: 'Courier New', monospace; font-size: 65px; font-weight: 900; letter-spacing: 8px; line-height: 1.2; margin: 0;">
+  <span style="color: #ffb6c1; font-size: 30px;">
+🌳⊹₊˚‧︵‿₊୨</span>
+  <span style="color: #ff85a1; -webkit-text-stroke: 1.3px white; text-shadow: 4px 4px 0px #ffc2d1, 0 0 20px #ff85a1;">𝙹𝚢𝚗𝚝</span>
+  <span style="color: #ffb6c1; font-size: 30px;">୧₊‿︵‧˚₊⊹</span> 🍒
+</h1>
 
 𝙷𝚎𝚕𝚕𝚘𝚘𝚘! 𝙸𝚝'𝚜 𝚖𝚎, 𝙱𝚊𝚘 𝚉𝚑𝚎𝚗 — 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙹𝚢𝚗𝚝 𝚝𝚘𝚘!
 𝙸'𝚖 𝚜𝚝𝚒𝚕𝚕 𝚢𝚘𝚞𝚗𝚐.
@@ -48,4 +57,5 @@ Here are some ideas to get you started:
 ⊹₊˚‧︵‿₊୨🐱🌱୧₊‿︵‧˚₊⊹
 ⊹₊˚‧︵‿₊୨🐱🌱୧₊‿︵‧˚₊⊹
 ⊹₊˚‧︵‿₊୨🐱🌱୧₊‿︵‧˚₊⊹ 
-⊹₊˚‧︵‿₊୨🐱🌱୧₊‿︵‧˚₊⊹
+⊹₊˚‧︵‿₊୨🐱🌱
+
