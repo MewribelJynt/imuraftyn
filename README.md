@@ -6,10 +6,10 @@
 
 𝚃𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚟𝚒𝚜𝚒𝚝𝚒𝚗𝚐 𝚖𝚢 𝚙𝚛𝚘𝚏𝚒𝚕𝚎🤗
 
-⊹₊˚‧︵‿₊୨🐱🌱୧₊‿︵‧˚₊⊹
+<p align="center">𓂀 ‧₊˚ ⛧ ♔ ⛧ ˚₊‧ 𓂀</p>
 
-<h1 align="center" style="color:#ff85a1;">˚₊· ͟͟͞͞➳❥ 𝒜𝐵𝒪𝒰𝒯 𝑀𝐸 ❥ ͟͟͞͞˚₊·</h1>
-<img width="1024" height="1024" alt="52007" src="https://github.com/user-attachments/assets/bffe84b9-b272-463c-ac3f-abbd30571582" />
+
+
 
 
 
@@ -27,6 +27,25 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+--><h1 align="center" style="font-family: 'Courier New', monospace; font-size: 60px; font-weight: 900; color: #050505; -webkit-text-stroke: 1.5px #ffffff; text-shadow: 4px 4px 0px #8B0000, 0 0 15px #ff0000, 0 0 30px black; letter-spacing: 6px; line-height: 1.2;">
+  ⸸ 𓆩 𝙽𝙴𝚁𝙾𝙽𝙰 𝙸𝙼𝚄 𓆪 ⸸
+</h1>
+
+<p align="center" style="font-family: monospace; color: #8B0000; font-size: 18px; letter-spacing: 3px; margin-top: -15px; text-shadow: 0 0 10px black;">
+  𖤐 ˖⁺‧₊˚ 𓆝 𝕯𝖆𝖗𝖐 𝕬𝖚𝖗𝖆 𓆟 ˚₊‧⁺˖ 𖤐
+</p>
+
 <img width="736" height="792" alt="51991" src="https://github.com/user-attachments/assets/5ec67f35-2bc9-4858-bd8e-1b48f3b89a8c" />
 
+
+<h1 align="center" style="color:#ff85a1;">˚₊· ͟͟͞͞➳❥ 𝒜𝐵𝒪𝒰𝒯 𝑀𝐸 ❥ ͟͟͞͞˚₊·</h1>
+<img width="1024" height="1024" alt="52007" src="https://github.com/user-attachments/assets/bffe84b9-b272-463c-ac3f-abbd30571582" />
+
+𝙷𝚎𝚕𝚕𝚘𝚘𝚘! 𝙸𝚝'𝚜 𝚖𝚎, 𝙱𝚊𝚘 𝚉𝚑𝚎𝚗 — 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙹𝚢𝚗𝚝 𝚝𝚘𝚘!
+𝙸'𝚖 𝚜𝚝𝚒𝚕𝚕 𝚢𝚘𝚞𝚗𝚐.
+𝙸'𝚖 𝚊𝚗 𝚒𝚗𝚝𝚛𝚘𝚟𝚎𝚛𝚝, 𝚋𝚞𝚝 𝚒𝚏 𝚢𝚘𝚞 𝚠𝚊𝚗𝚗𝚊 𝚋𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜, 𝙸'𝚖 𝚊𝚕𝚠𝚊𝚢𝚜 𝚛𝚎𝚊𝚍𝚢. 𝙸'𝚖 𝚎𝚊𝚜𝚢𝚐𝚘𝚒𝚗𝚐 𝚊𝚗𝚍 𝚟𝚎𝚛𝚢 𝚌𝚑𝚒𝚕𝚕, 𝚜𝚘 𝚛𝚎𝚕𝚊𝚡! 𝙵𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚐𝚎𝚝 𝚝𝚘 𝚔𝚗𝚘𝚠 𝚖𝚎, 𝚗𝚒𝚌𝚎 𝚝𝚘 𝚖𝚎𝚎𝚝 𝚢𝚘𝚞!
+
+⊹₊˚‧︵‿₊୨🐱🌱୧₊‿︵‧˚₊⊹
+⊹₊˚‧︵‿₊୨🐱🌱୧₊‿︵‧˚₊⊹
+⊹₊˚‧︵‿₊୨🐱🌱୧₊‿︵‧˚₊⊹ 
+⊹₊˚‧︵‿₊୨🐱🌱୧₊‿︵‧˚₊⊹
