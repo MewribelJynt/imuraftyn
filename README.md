@@ -35,9 +35,7 @@ Here are some ideas to get you started:
   𖤐 ˖⁺‧₊˚ 𓆝 𝕯𝖆𝖗𝖐 𝕬𝖚𝖗𝖆 𓆟 ˚₊‧⁺˖ 𖤐
 </p>
 
-<div align="center">
-  <img width="550" alt="IMU-SAMA" src="https://github.com/user-attachments/assets/5ec67f35-2bc9-4858-bd8e-1b48f3b89a8c" style="border-radius: 15px; box-shadow: 0 0 20px rgba(255,0,0,0.3);" />
-</div>
+<img width="1344" height="1792" alt="52032" src="https://github.com/user-attachments/assets/d159ee78-7fcf-4991-af4e-728fee48a9fe" />
 
 <h1 align="center" style="color:#ff85a1;">˚₊· ͟͟͞͞➳❥ 𝒜𝐵𝒪𝒰𝒯 𝑀𝐸 ❥ ͟͟͞͞˚₊·</h1>
 
