@@ -1,4 +1,6 @@
-·˚ ༘₊· ͟͟͞͞꒰ ♔ 𝕀𝕄𝕌-𝕊𝔸𝕄𝔸 ♔ ꒱·˚ ༘₊· ͟͟͞͞
+<p align="center" style="font-size: 22px; white-space: nowrap; text-align: center; margin: 8px 0; letter-spacing: 0.5px;">
+  <span style="font-size: 16px;">·˚ ༘₊·</span> ꒰ ♔ 𝕀𝕄𝕌-𝕊𝔸𝕄𝔸 ♔ ꒱ <span style="font-size: 16px;">·₊༘ ˚·</span>
+</p>
 
 𝙸'𝚖 𝚝𝚛𝚞𝚕𝚢 𝚌𝚊𝚙𝚝𝚒𝚟𝚊𝚝𝚎𝚍 𝚋𝚢 𝙸𝚖𝚞'𝚜 𝚌𝚑𝚊𝚛𝚊𝚌𝚝𝚎𝚛 𝚍𝚎𝚜𝚒𝚐𝚗 𝚒𝚗 𝚝𝚑𝚒𝚜 𝚏𝚘𝚛𝚖, 𝚝𝚋𝚑.
 
@@ -7,12 +9,6 @@
 𝚃𝚑𝚊𝚗𝚔𝚜 𝚏𝚘𝚛 𝚟𝚒𝚜𝚒𝚝𝚒𝚗𝚐 𝚖𝚢 𝚙𝚛𝚘𝚏𝚒𝚕𝚎🤗
 
 <p align="center">𓂀 ‧₊˚ ⛧ ♔ ⛧ ˚₊‧ 𓂀</p>
-
-
-
-
-
-
 
 <!--
 **imuraftyn/imuraftyn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -49,9 +45,10 @@ Here are some ideas to get you started:
   <span>🍒</span>
 </p>
 
-𝙷𝚎𝚕𝚕𝚘𝚘𝚘! 𝙸𝚝'𝚜 𝚖𝚎, 𝙱𝚊𝚘 𝚉𝚑𝚎𝚗 — 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙹𝚢𝚗𝚝 𝚝𝚘𝚘!
-𝙸'𝚖 𝚜𝚝𝚒𝚕𝚕 𝚢𝚘𝚞𝚗𝚐.
-𝙸'𝚖 𝚊𝚗 𝚒𝚗𝚝𝚛𝚘𝚟𝚎𝚛𝚝, 𝚋𝚞𝚝 𝚒𝚏 𝚢𝚘𝚞 𝚠𝚊𝚗𝚗𝚊 𝚋𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜, 𝙸'𝚖 𝚊𝚕𝚠𝚊𝚢𝚜 𝚛𝚎𝚊𝚍𝚢. 𝙸'𝚖 𝚎𝚊𝚜𝚢𝚐𝚘𝚒𝚗𝚐 𝚊𝚗𝚍 𝚟𝚎𝚛𝚢 𝚌𝚑𝚒𝚕𝚕, 𝚜𝚘 𝚛𝚎𝚕𝚊𝚡! 𝙵𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚐𝚎𝚝 𝚝𝚘 𝚔𝚗𝚘𝚠 𝚖𝚎, 𝚗𝚒𝚌𝚎 𝚝𝚘 𝚖𝚎𝚎𝚝 𝚢𝚘𝚞!
+<p align="center" style="font-size: 15px; line-height: 1.7; color: #c9d1d9; max-width: 600px; margin: 0 auto;">
+
+Hii! It's Bao Zhen here — you can call me Jynt! 
+Still young, still learning, still a little introverted... but if you wanna be friends, I'm always here. I'm super easygoing and chill, so no need to be shy. Come say hi, let's get to know each other! Nice to meet youu ~
 
 🪻 ‧₊˚ ⊹ 🌻 ‧₊˚ ⊹ 🪻⊹₊˚‧︵‿₊୨🪻୧₊‿︵⊹
 
