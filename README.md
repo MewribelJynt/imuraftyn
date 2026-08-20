@@ -31,10 +31,6 @@ Here are some ideas to get you started:
   ⸸ 𓆩 𝙽𝙴𝚁𝙾𝙽𝙰 𝙸𝙼𝚄 𓆪 ⸸
 </h1>
 
-<p align="center" style="font-family: monospace; color: #8B0000; font-size: 18px; letter-spacing: 3px; margin-top: -15px; text-shadow: 0 0 10px black;">
-  𖤐 ˖⁺‧₊˚ 𓆝 𝕯𝖆𝖗𝖐 𝕬𝖚𝖗𝖆 𓆟 ˚₊‧⁺˖ 𖤐
-</p>
-
 <img width="1344" height="1792" alt="52032" src="https://github.com/user-attachments/assets/d159ee78-7fcf-4991-af4e-728fee48a9fe" />
 
 <h1 align="center" style="color:#ff85a1;">˚₊· ͟͟͞͞➳❥ 𝒜𝐵𝒪𝒰𝒯 𝑀𝐸 ❥ ͟͟͞͞˚₊·</h1>
@@ -54,5 +50,5 @@ Here are some ideas to get you started:
 𝙸'𝚖 𝚜𝚝𝚒𝚕𝚕 𝚢𝚘𝚞𝚗𝚐.
 𝙸'𝚖 𝚊𝚗 𝚒𝚗𝚝𝚛𝚘𝚟𝚎𝚛𝚝, 𝚋𝚞𝚝 𝚒𝚏 𝚢𝚘𝚞 𝚠𝚊𝚗𝚗𝚊 𝚋𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜, 𝙸'𝚖 𝚊𝚕𝚠𝚊𝚢𝚜 𝚛𝚎𝚊𝚍𝚢. 𝙸'𝚖 𝚎𝚊𝚜𝚢𝚐𝚘𝚒𝚗𝚐 𝚊𝚗𝚍 𝚟𝚎𝚛𝚢 𝚌𝚑𝚒𝚕𝚕, 𝚜𝚘 𝚛𝚎𝚕𝚊𝚡! 𝙵𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚐𝚎𝚝 𝚝𝚘 𝚔𝚗𝚘𝚠 𝚖𝚎, 𝚗𝚒𝚌𝚎 𝚝𝚘 𝚖𝚎𝚎𝚝 𝚢𝚘𝚞!
 
-🪻 ‧₊˚ ⊹ 🌻 ‧₊˚ ⊹ 🪻⊹₊˚‧︵‿₊୨🪻୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨🌻🪻୧₊‿︵‧˚₊⊹₊˚‧︵‿₊୨🌻୧₊‿︵‧˚₊⊹🌻 ‧₊˚ ⊹ 🪻 ‧₊˚ ⊹ 🌻
+🪻 ‧₊˚ ⊹ 🌻 ‧₊˚ ⊹ 🪻⊹₊˚‧︵‿₊୨🪻୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨🌻🪻୧₊‿︵‧˚₊⊹₊˚‧︵‿₊୨🌻୧₊‿︵‧˚₊⊹🌻 ‧₊˚
 
