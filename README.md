@@ -1,3 +1,4 @@
+<h1 align="center">💐 — 𝒾𝓃𝓉𝓇𝑜𝒹𝓊𝒸𝓉𝒾𝑜𝓃 — 😽</h1>
 Heyy, it's Jynt here ♡
 thanks for stopping by — stay a while if you'd like (⁠ ⁠◜⁠‿⁠◝⁠ ⁠).
 
