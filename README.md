@@ -1,3 +1,10 @@
+Heyy, it's Jynt here ♡
+thanks for stopping by — stay a while if you'd like (⁠ ⁠◜⁠‿⁠◝⁠ ⁠).
+
+I'm Jynt. I was a bit introverted and shy at first, so I wasn't very good at starting convos, but if u greet me first, I'll always agree. I'm quite friendly and approachable, and once we become close, I'll be completely sincere w/ u. I'm also very easygoing and relaxed, so feel free to come say hello and sit w/ me. I'm perfectly comfortable w/ hugging and sitting together, even having intimate convos.
+
+What would it be like if we had a friendly convo? Hmm, smth like this: 'Hii, gm,' that's what I meant 🤭"
+
 Wip
 <!--
 **imuraftyn/imuraftyn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
