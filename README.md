@@ -68,8 +68,7 @@ If we share the same fandom, feel free to reach out and chat! Since we're in the
 ₊˚⊹ ୨ৎ ── ⋆｡°✩°｡⋆ ── ୨ৎ ⊹˚₊
 
 That’s all, ty so much for spending ur precious time reading all of this 🥹🫶
-Ty everyone, whether ur older or younger, aunties, uncles, etc. 😹
-Now, me & my older sis are gonna flop down & sleep.
+Ty everyone, whether ur older or younger, aunties, uncles, etc. 😰
 
 My older sis (Rabbit Usagi) — me (Cat Hachiware). 🫂💞
 
