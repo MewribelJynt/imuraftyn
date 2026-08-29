@@ -1,4 +1,15 @@
 <h1 align="center">💐 — 𝒾𝓃𝓉𝓇𝑜𝒹𝓊𝒸𝓉𝒾𝑜𝓃 — 😽</h1>
+
+<div align="center">
+
+  <img
+    src="https://github.com/user-attachments/assets/ca68710d-0a77-4332-97c6-4c115054dfc7"
+    width="282"
+    alt="52205"
+  />
+
+</div>
+
 Hi everyone, it's Jynt here ♡ Thx for visiting — feel free to stay and chat w/ me for a bit if you'd like (⁠ ⁠◜⁠‿⁠◝⁠ ⁠).
 
 
