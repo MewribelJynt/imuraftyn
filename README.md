@@ -77,24 +77,32 @@ My older sis (Rabbit Usagi) — me (Cat Hachiware). 🫂💞
 
 <div align="center">
 
-<h1>
-  <span style="color:red;">LOOK! LOOK!!</span>
-</h1>
+<table>
+<tr>
+<td width="38%" align="center">
+
+<img
+  src="https://github.com/user-attachments/assets/5cd5a2f0-c412-47b8-9a0f-8d39a606ecc1"
+  width="135"
+  alt="Heart shooter"
+/>
+
+</td>
+
+<td width="44%" align="center">
+
+💗　➳　💘  
+　💕　➳　💗  
+💞　➳　💖  
+
+</td>
+
+<td width="18%" align="center">
+
+<h2>YOU</h2>
+
+</td>
+</tr>
+</table>
 
 </div>
-
-Wip
-<!--
-**imuraftyn/imuraftyn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
---><h1 align="center" style="font-family: 'Courier New', monospace; font-size: 60px; font-weight: 900; color: #050505; -webkit-text-stroke: 1.5px #ffffff; text-shadow: 4px 4px 0px #8B0000, 0 0 15px #ff0000, 0 0 30px black; letter-spacing: 6px; line-height: 1.2;">
