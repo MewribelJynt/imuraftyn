@@ -48,7 +48,16 @@ I'm a 15-year-old girl, so pls keep that in mind if you're thinking about gettin
   />
 
 </div>
-  
+
+<div align="center">
+
+<h2>🐰˚₊· ͟͟͞͞➳❥ 𝐂𝐡𝐢𝐢𝐤𝐚𝐰𝐚 ❥➳ ͟͟͞͞·₊˚🐱</h2>
+<p>🐭 ｡･:*˚:✧｡ ちいかわ ｡✧:˚*:･｡ 🐰</p>
+
+</div>
+
+I rlly love Chiikawa (ちいかわ) & its super cute cast 🥹🫶 I love pretty much every character, but Hachiware is my absolute fav!! 💞
+
 # ୨୧ 𝐅 𝐀 𝐍 𝐃 𝐎 𝐌 ୨୧
 </div>
 
