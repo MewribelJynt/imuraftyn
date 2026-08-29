@@ -24,6 +24,8 @@ First, I’d like to say this & emphasize that…↓
 
 I’m not a native EN speaker, & my EN is rlly bad 😭. Hope u guys understand & be patient w/ me 🥹… pls bear w/ me.
 
+୨ৎ ˚ ༘♡ ⋆｡˚ ❁ ˚｡⋆ ♡༘˚ ୨ৎ
+
 Hi everyone, it's Jynt here ♡ Thx for visiting — feel free to stay and chat w/ me for a bit if you'd like (⁠ ⁠◜⁠‿⁠◝⁠ ⁠).
 
 I'm Jynt. At first, I'm a bit introverted and shy, so I'm not very good at starting convos. But if you're the one to say hi first, I'll always happily respond.
@@ -38,6 +40,15 @@ I'm a 15-year-old girl, so pls keep that in mind if you're thinking about gettin
  
 <div align="center">
 
+  <img
+    src="https://github.com/user-attachments/assets/3bfcfb48-6387-4bf7-97b0-bf428e7ba649"
+    alt="52203"
+    width="736"
+    style="max-width: 100%; height: auto;"
+  />
+
+</div>
+  
 # ୨୧ 𝐅 𝐀 𝐍 𝐃 𝐎 𝐌 ୨୧
 </div>
 
@@ -47,6 +58,20 @@ If we share the same fandom, feel free to reach out and chat! Since we're in the
 
 ₊˚⊹ ୨ৎ ── ⋆｡°✩°｡⋆ ── ୨ৎ ⊹˚₊
 
+That’s all, ty so much for spending ur precious time reading all of this 🥹🫶
+Ty everyone, whether ur older or younger, aunties, uncles, etc. 😹
+Now, me & my older sis are gonna flop down & sleep.
+
+My older sis (Rabbit Usagi) — me (Cat Hachiware). 🫂💞
+
+<p align="center">
+  <img
+    src="https://github.com/user-attachments/assets/957b58d0-c559-46dc-9622-9289429220b6"
+    width="282"
+    height="282"
+    alt="52204"
+  />
+</p>
 
 Wip
 <!--
