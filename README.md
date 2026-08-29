@@ -2,6 +2,16 @@
 
 <div align="center">
 
+<div align="center">
+
+
+╭────── ୨୧ ──────╮  
+𐙚 **𝐇𝐞𝐥𝐥𝐨** 𐙚  
+**𝐖𝐞𝐥𝐜𝐨𝐦𝐞 𝐭𝐨 𝐦𝐲 𝐩𝐫𝐨𝐟𝐢𝐥𝐞 !**  
+╰────── ୨୧ ──────╯
+
+</div>
+
   <img
     src="https://github.com/user-attachments/assets/ca68710d-0a77-4332-97c6-4c115054dfc7"
     width="282"
@@ -24,6 +34,8 @@ What would it be like if we had a friendly convo? Hmm, smth like this: 'Hii, gm,
 
 I'm a 15-year-old girl, so pls keep that in mind if you're thinking about getting to know me. I'm totally comfortable being friends w/ ppl who are older or younger than me. 😽
 
+ ⊹₊˚ 𐙚 ❀ 𐙚 ˚₊⊹ ୨୧ ⊹₊˚ 𐙚 ❀ 𐙚 ˚₊⊹
+ 
 <div align="center">
 
 # ୨୧ 𝐅 𝐀 𝐍 𝐃 𝐎 𝐌 ୨୧
@@ -32,6 +44,9 @@ I'm a 15-year-old girl, so pls keep that in mind if you're thinking about gettin
 As for fandoms, I'm a fan of One Piece and even cosplay chars from the series by creating my own skins.
 I also create skins for OCs and One Piece chars, as well as other chars that have really impressed me.
 If we share the same fandom, feel free to reach out and chat! Since we're in the same fandom, I'm sure we'll have plenty to talk about. ♡
+
+₊˚⊹ ୨ৎ ── ⋆｡°✩°｡⋆ ── ୨ৎ ⊹˚₊
+
 
 Wip
 <!--
