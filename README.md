@@ -28,7 +28,7 @@ I’m not a native EN speaker, & my EN is rlly bad 😭. Hope u guys understand 
 
 Hi everyone, it's Jynt here ♡ Thx for visiting — feel free to stay and chat w/ me for a bit if you'd like (⁠ ⁠◜⁠‿⁠◝⁠ ⁠).
 
-I'm Jynt. At first, I'm a bit introverted and shy, so I'm not very good at starting convos. But if you're the one to say hi first, I'll always happily respond.
+I At first, I'm a bit introverted and shy, so I'm not very good at starting convos. But if you're the one to say hi first, I'll always happily respond.
 I'm incredibly friendly, approachable, and super chill. Once we become close, I'll always treat you with all my sincerity. So don't hesitate to say hi, sit next to me, or chat w/ me.
 I'm completely comfortable w/ hugs and sitting together, as well as cute and friendly convos. 💗
 
