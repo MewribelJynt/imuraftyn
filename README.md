@@ -25,9 +25,11 @@ I'm a 15-year-old girl, so pls keep that in mind if you're thinking about gettin
 <div align="center">
 
 # ୨୧ 𝐅 𝐀 𝐍 𝐃 𝐎 𝐌 ୨୧
-
 </div>
 
+As for fandoms, I'm a fan of One Piece and even cosplay chars from the series by creating my own skins.
+I also create skins for OCs and One Piece chars, as well as other chars that have really impressed me.
+If we share the same fandom, feel free to reach out and chat! Since we're in the same fandom, I'm sure we'll have plenty to talk about. ♡
 
 Wip
 <!--
