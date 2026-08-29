@@ -87,6 +87,14 @@ My older sis (Rabbit Usagi) — me (Cat Hachiware). 🫂💞
   alt="Heart shooter"
 />
 
+<div align="center">
+
+<h1>
+  <span style="color:red;">Shoot!💘</span>
+</h1>
+
+</div>
+
 </td>
 
 <td width="44%" align="center">
@@ -99,7 +107,7 @@ My older sis (Rabbit Usagi) — me (Cat Hachiware). 🫂💞
 
 <td width="18%" align="center">
 
-<h2>YOU</h2>
+<h2>YOU💞</h2>
 
 </td>
 </tr>
