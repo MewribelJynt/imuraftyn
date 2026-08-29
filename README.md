@@ -11,6 +11,12 @@ What would it be like if we had a friendly convo? Hmm, smth like this: 'Hii, gm,
 
 I'm a 15-year-old girl, so pls keep that in mind if you're thinking about getting to know me. I'm totally comfortable being friends w/ ppl who are older or younger than me. 😽
 
+<div align="center">
+
+# ୨୧ ⟡ 𝐅 𝐀 𝐍 𝐃 𝐎 𝐌 ⟡ ୨୧
+
+</div>
+
 
 Wip
 <!--
