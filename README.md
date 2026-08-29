@@ -13,7 +13,7 @@ I'm a 15-year-old girl, so pls keep that in mind if you're thinking about gettin
 
 <div align="center">
 
-# ୨୧ ⟡ 𝐅 𝐀 𝐍 𝐃 𝐎 𝐌 ⟡ ୨୧
+# ୨୧ 𝐅 𝐀 𝐍 𝐃 𝐎 𝐌 ୨୧
 
 </div>
 
