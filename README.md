@@ -75,6 +75,13 @@ My older sis (Rabbit Usagi) — me (Cat Hachiware). 🫂💞
 
 <img width="616" height="258" alt="52213" src="https://github.com/user-attachments/assets/cf9c1797-711f-43b7-beb8-95e3f04b7ff5" />
 
+<div align="center">
+
+<h1>
+  <span style="color:red;">LOOK! LOOK!!</span>
+</h1>
+
+</div>
 
 Wip
 <!--
