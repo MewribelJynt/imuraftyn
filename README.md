@@ -64,14 +64,8 @@ Now, me & my older sis are gonna flop down & sleep.
 
 My older sis (Rabbit Usagi) — me (Cat Hachiware). 🫂💞
 
-<p align="center">
-  <img
-    src="https://github.com/user-attachments/assets/957b58d0-c559-46dc-9622-9289429220b6"
-    width="282"
-    height="282"
-    alt="52204"
-  />
-</p>
+<img width="616" height="258" alt="52213" src="https://github.com/user-attachments/assets/cf9c1797-711f-43b7-beb8-95e3f04b7ff5" />
+
 
 Wip
 <!--
